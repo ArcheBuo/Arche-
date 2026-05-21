@@ -1,2 +1,2 @@
 # Arche-
-mabait, gwapings, 
+mabait, gwapings.

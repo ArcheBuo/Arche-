@@ -1,2 +1,2 @@
 # Arche-
-wala lng
+mabait, gwapings, 

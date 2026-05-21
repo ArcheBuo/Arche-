@@ -1,3 +1,6 @@
 # *MY PORTFOLIO*
 ## **MY** **SPORTS** 
-<Details>
+# **Billiard**
+# **My** **Achievements**
+# **First Place** **Baragatan** **Nine Ball** **Tournament**
+# *My Game Play*
